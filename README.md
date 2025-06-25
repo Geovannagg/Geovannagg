@@ -1,4 +1,4 @@
-## Hi there, Geovanna's here 👋
+## Hi there, Geovanna's here 💋!
 
 🤘🏽Let's rock!
 
